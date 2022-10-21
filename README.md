@@ -9,4 +9,4 @@ About the [Game Developer](https://en.wikipedia.org/wiki/Brad_Borne)
 
 [Offical Website](https://www.bornegames.com/) (No longer able to play on OG site)
 
-Get Files... Or play on [Fantcy](https://sites.google.com/view/fancyexplore)
+Get Files... Or [play](https://sites.google.com/view/fancyexplore/shop/portal-player) on [Fantcy](https://sites.google.com/view/fancyexplore)
